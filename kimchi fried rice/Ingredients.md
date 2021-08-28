@@ -1,4 +1,4 @@
-## Ingredients for kimchi;;;;;;
+## Ingredients for kimchi;;;;;; --------
 Ingredient Checklist
 1 Napa cabbage, cut into 2-inch strips
 1/4-1/2 cup kosher salt

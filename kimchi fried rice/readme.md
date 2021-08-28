@@ -6,3 +6,4 @@ Main ingredients: Various vegetables including napa cabbage and Korean radish
 
 Variations: Baechu-kimchi, baek-kimchi, dongchimi, kkakdugi, nabak-kimchi, pa-kimchi, yeolmu-kimchi, gat-kimchi, seokbakji
 
+     ...thankyou..

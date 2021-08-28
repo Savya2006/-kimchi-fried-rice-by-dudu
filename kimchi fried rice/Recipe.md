@@ -1,7 +1,7 @@
 
 ## DirectionsInstructions Checklist;;;{For Kimchi}
 
-Step 45
+Step 1 let;s start
 Place cabbage in a large bowl and sprinkle with salt. Mix thoroughly using gloves, if preferred. Place a heavy pot or pan on top with weights and allow cabbage to sit for 1-2 hours until wilted and water has been released.
 
 Step 2
